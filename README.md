@@ -4,7 +4,7 @@
 
 ***Boundaries Meaning (on my name):***
 
-B/W2I (Boop/Whisperto Interact)
+B/W2I (Boop/Whisper to Interact)
 
 C+H (Cuddles + Hiding)
 

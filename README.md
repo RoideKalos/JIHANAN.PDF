@@ -2,7 +2,7 @@
 
 ---------------------------------
 
-***Boundaries Meaning (on my name):***
+***Boundaries I use:***
 
 B/W2I (Boop/Whisper to Interact)
 

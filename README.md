@@ -1,4 +1,4 @@
-***If you came here from Pony Town, This place is all you need to know about me there***
+***If you came here from Pony Town, this document is all you need to know about me there***
 
 ---------------------------------
 

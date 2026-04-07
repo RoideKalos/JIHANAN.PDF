@@ -22,4 +22,4 @@ Other than Touching/Cuddling/Hiding behind me (TC, C+H), you can as well give th
 
 But if you ask me to join your party, It depends on my response; if I'm in a party and can't leave, I'll say that. But if I just don't feel like it, I'll say that as well, etc. so please beware
 
-I always wanted someone to talk to me, so my status is always "Looking for chat", but even with that status, I want people to interact with me first cuz I'm not good to strangers
+I always wanted someone to talk to me, so my status is always "Looking for chat", but even with that status, I want people to interact with me first cuz I'm not good to strangers + I'm really shy (especially if I'm talking to someone who wears a skin from one of my fandoms)
